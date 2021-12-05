@@ -1,1 +1,1 @@
-# HololiveSS合同創作
+# Hololive小説合作
